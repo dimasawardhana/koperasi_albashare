@@ -1,0 +1,1 @@
+#koperrasi_albashare
